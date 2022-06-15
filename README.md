@@ -6,7 +6,7 @@ Creators:
 
 <a href="https://www.linkedin.com/in/narayan-chatalwar-09905121a/">Narayan Chatalwar</a>
 
-<a href="https://www.linkedin.com/in/yash-tomar-b58995199/">Yash Tomar</a>
+<a href="https://www.linkedin.com/in/yashtomar15/">Yash Tomar</a>
 
 <a href="https://www.linkedin.com/in/shiva-datta/">Shiva Datta</a>
 
